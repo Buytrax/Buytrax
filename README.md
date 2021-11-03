@@ -10,5 +10,3 @@ You can click the Preview link to take a look at your changes.
 --->
 
 My professor obligate me to do this, this don't tell anything truth about me, or yes? XD help me
-
-In fact, i know what u can do, go shoot yourself or buy a rope, JOKING, only pay me money on my PATREON thnks ^v^
