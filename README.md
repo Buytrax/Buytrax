@@ -1,1 +1,3 @@
-K coño miras vete a tomar por culo anda.
+IF (tu = tonto) THEN
+  vete a la mierda
+END IF
